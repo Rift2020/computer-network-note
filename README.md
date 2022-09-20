@@ -4,4 +4,4 @@
 
 课程链接
 
-https://www.bilibili.com/video/BV1JV411t7ow?share_source=copy_web&vd_source=25556d3d745259cf265a52e58d0e264a
+https://www.bilibili.com/video/BV1JV411t7ow/
